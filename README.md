@@ -15,7 +15,7 @@
 
 - 🤝 I’m looking for help with **internship opportunities**
 
-- 📫 How to reach me **tanishqdehariya1892004@gmail.com**
+- 📫 How to reach me **[tanishqdehariya1892004@gmail.com](https://x.com/tanishq_writes)**
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/e/2PACX-1vShrLhIhJ7X-nN1t6hwsUly9-cIyadfIc_6f8tYRKizn7B9Yro3E5DcaekiVO5LRBi3C_T6bolXRfoZ/pub](https://docs.google.com/document/d/e/2PACX-1vShrLhIhJ7X-nN1t6hwsUly9-cIyadfIc_6f8tYRKizn7B9Yro3E5DcaekiVO5LRBi3C_T6bolXRfoZ/pub)
 
