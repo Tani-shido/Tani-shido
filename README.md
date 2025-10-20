@@ -7,7 +7,7 @@
 
 <p align="left"> <a href="https://twitter.com/tanishq_writes" target="blank"><img src="https://img.shields.io/twitter/follow/tanishq_writes?logo=twitter&style=for-the-badge" alt="tanishq_writes" /></a> </p>
 
-- 🔭 I’m currently working on **A BookASeat website**
+- 🔭 I’m currently working on **A Course-Era website**
 
 - 🌱 I’m currently learning **DSA,TypeScript**
 
